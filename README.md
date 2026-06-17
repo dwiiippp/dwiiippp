@@ -19,7 +19,7 @@
 - 🌏I'm from **Indonesia**
 - 🏫I’m currently studying on **Semarang State University (UNNES)**
 - 📚I’m currently learning **Game Developer**
-- 😁My hobbies are **reading books, watching movies, hiking, and**
+- 😁My hobbies are **reading books, watching movies, hiking, and enjoying the sunset**
 
 
 ### 🌐 Socials:
